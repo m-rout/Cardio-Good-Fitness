@@ -1,1 +1,1 @@
-## Cardio-Good-Fitness
+## Cardio Good Fitness
